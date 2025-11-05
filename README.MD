@@ -6,3 +6,5 @@ go to this site to learn about another crazy prodigy hack:
 
 https://www.youtube.com/watch?v=XHuXzYM7OvU
 
+I am not sure if the link's hacks do not work on PC. Only chromebook works, I think.
+
