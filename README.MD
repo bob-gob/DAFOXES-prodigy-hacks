@@ -8,6 +8,6 @@ https://www.youtube.com/watch?v=XHuXzYM7OvU
 
 I am not sure if the link's hacks do not work on PC. Only chromebook works, I think.
 
-(I also made blooket and gimkit hacks. Duolingo hacks in progress)
+(I also made blooket, gimkit, and duolingo hacks)
 
 Enjoy!
