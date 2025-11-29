@@ -10,4 +10,8 @@ I am not sure if the link's hacks do not work on PC. Only chromebook works, I th
 
 (I also made blooket, gimkit, blacket, khan academy, and duolingo hacks)
 
+i found a magicoin generator site:
+
+http://gomelon.art/
+
 Enjoy!
